@@ -1,0 +1,3 @@
+Lester Lexicon
+Philippines
+Front-End Developer Professional
